@@ -1,3 +1,2 @@
 # HMS
-
-https://teams.microsoft.com/l/meetup-join/19%3ameeting_OWY5NTc1NDgtMDAxOS00YmZhLWFmMmYtMjk1YTdmYWNkNDMx%40thread.v2/0?context=%7b%22Tid%22%3a%2276a2ae5a-9f00-4f6b-95ed-5d33d77c4d61%22%2c%22Oid%22%3a%22d8039d26-053a-49b4-89ee-50e188950b0b%22%7d
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_NjJjYTY0NTktM2I1MC00ZjE1LTg0YjktOTI3NzRjNDU2ZWI0%40thread.v2/0?context=%7b%22Tid%22%3a%22de08c407-19b9-427d-9fe8-edf254300ca7%22%2c%22Oid%22%3a%22edc1fb32-5ffd-4afa-b3a7-283b7fa1fb87%22%7d
