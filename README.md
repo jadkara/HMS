@@ -1,7 +1,4 @@
-https://teams.microsoft.com/l/meetup-join/19%3ameeting_YzM5YjE1ZDAtMzgyNy00MTA3LTliMDEtMjllMjY5ZTc0ODUw%40thread.v2/0?context=%7b%22Tid%22%3a%22363f8ad7-1be3-4f05-8a6b-4955756fe2f6%22%2c%22Oid%22%3a%2218f3f9f3-df2c-417a-9530-ef5da8f4a851%22%7d
-
-
-
+http://sgsub.notify.evalground.com/ls/click?upn=QmR1XE97ru3Re9-2BtL6rDxgzzYJJJp8-2BdTwYygU9x05SrqpKaEn1VVhbUxqTDrJImTx4KSBIIKGSwaC913Pv0nHwn7QTJn-2B-2FYRz3qAFv4Eo7O5L-2FIAGS3t3g21OZQTYpD651Y6a6-2FHUJRhOLItvVvXl4mLiEzoYrwUE0tWsdcgMI-2Bsfc871SFSf6dndSFxI81eCtViVI2BWIeBM4Iwot9JteiJbU-2BGBxHMZwfmw78jFM-3DlX2j_x6gmTz73ZHM-2F6OdR0sAoX7YeckcKW5sJ02TphPeHapArZg9ThSElxfJnNRYenLm-2FrK-2FBm8WVx3bRsAGm-2B6UsC1UUi-2BSZ2Vmog9EY9jx-2Bj-2BffQ-2BrEqLCheXkxqSYneuzji9Q6IIttBXllEguIvDfCOADBO9zlw6iGq3jiBYCUvTXfaQaUSNYfv244On6rJ5HpdSCoANR4drOJbTVki-2FEhkiZFqT7Fvf0-2FW8eYbOkXJ4M-3D
 
 Example : Array : 2,5,6,7,8,8,9 
 
