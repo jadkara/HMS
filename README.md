@@ -1,3 +1,8 @@
+Cerence
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_NzdjMGFmNmMtMmM5Mi00M2EyLTg3MTctZjdkNjE0NDRjMTA2%40thread.v2/0?context=%7b%22Tid%22%3a%22363f8ad7-1be3-4f05-8a6b-4955756fe2f6%22%2c%22Oid%22%3a%2218f3f9f3-df2c-417a-9530-ef5da8f4a851%22%7d
+
+
+
 Michinile
 https://teams.microsoft.com/l/meetup-join/19%3ameeting_YjE4MzM2OGUtMTJhYi00Njg3LWFlMzktYWY5OGI5MWJhZWNj%40thread.v2/0?context=%7b%22Tid%22%3a%22658ba197-6c73-4fea-91bd-1c7d8de6bf2c%22%2c%22Oid%22%3a%2209a4a961-e29c-4c62-ae78-9a3e9ce20020%22%7d
 
