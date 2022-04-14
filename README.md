@@ -1,3 +1,8 @@
+Infosys L2
+
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_YzY4OGMwMzMtODVhZC00MDc4LTlmNzctZGQ3ZjU2MDI4NzA0%40thread.v2/0?context=%7b%22Tid%22%3a%2263ce7d59-2f3e-42cd-a8cc-be764cff5eb6%22%2c%22Oid%22%3a%22255bcf1d-36de-4a84-b9c2-75178b7bbae9%22%7d
+
+
 Iris
 
 https://teams.microsoft.com/l/meetup-join/19%3ameeting_ODE2YTdjZTYtYjJkNy00MTBkLThkOGYtNjk2YzUwN2JlYTQ0%40thread.v2/0?context=%7b%22Tid%22%3a%2273bffe2b-9041-4754-aaf0-3ef61cde7559%22%2c%22Oid%22%3a%226890d010-40af-4f66-88a6-9b78f1ae67b2%22%7d
