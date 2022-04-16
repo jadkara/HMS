@@ -1,3 +1,7 @@
+Synchron l2 sat
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_ZjE4Zjk4NWUtYjc2Yy00YmFjLWFhNzAtYWUwYzU2MzQ3Yjdi%40thread.v2/0?context=%7b%22Tid%22%3a%22e50ebc84-76f2-4636-b550-c3f7abc924af%22%2c%22Oid%22%3a%22c779d815-b40d-47fa-b99b-e38b794bbd6a%22%7d
+
+
 EY
 https://teams.microsoft.com/l/meetup-join/19%3ameeting_Y2NkYmYxNzktY2RmNi00MTlmLTgyODAtNzhjYTExZTg0NDQ3%40thread.v2/0?context=%7b%22Tid%22%3a%22005f4454-6ca3-4ebe-a8ce-500e3c26e862%22%2c%22Oid%22%3a%22c7614515-a4a1-4095-9e27-82ca247e98dc%22%7d
 
