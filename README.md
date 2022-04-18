@@ -1,3 +1,8 @@
+Ss@c
+
+https://ssctech.zoom.us/j/6226807240
+
+
 Sdc
 https://teams.microsoft.com/l/meetup-join/19%3ameeting_ZDUyNjBlZTAtN2Q3OS00NTY4LWFiMDEtM2JkMGUzMzI0Mzgz%40thread.v2/0?context=%7b%22Tid%22%3a%222882be50-2012-4d88-ac86-544124e120c8%22%2c%22Oid%22%3a%22788ee1ae-30b2-478b-9717-0418b6811eb9%22%7d
 
