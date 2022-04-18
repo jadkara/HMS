@@ -1,3 +1,7 @@
+Syn
+
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_MzhlOTg0NTQtYjZlZC00ZGJmLWFkNTQtNmM4NDI0OTkzOTM0%40thread.v2/0?context=%7b%22Tid%22%3a%22e50ebc84-76f2-4636-b550-c3f7abc924af%22%2c%22Oid%22%3a%22481352b0-a41b-4e0f-b609-7ab966714afc%22%7d
+
 Ss@c
 
 https://ssctech.zoom.us/j/6226807240
