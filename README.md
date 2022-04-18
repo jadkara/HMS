@@ -1,3 +1,6 @@
+HCl
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_YTkxOTdhMmYtNDllMS00N2MwLWIyZmQtNzExODY1ZDgwYzg3%40thread.v2/0?context=%7b%22Tid%22%3a%22189de737-c93a-4f5a-8b68-6f4ca9941912%22%2c%22Oid%22%3a%220778552a-34e4-4ca7-8e3e-17479bac711b%22%7d
+
 Synchron l2 sat
 https://teams.microsoft.com/l/meetup-join/19%3ameeting_ZjE4Zjk4NWUtYjc2Yy00YmFjLWFhNzAtYWUwYzU2MzQ3Yjdi%40thread.v2/0?context=%7b%22Tid%22%3a%22e50ebc84-76f2-4636-b550-c3f7abc924af%22%2c%22Oid%22%3a%22c779d815-b40d-47fa-b99b-e38b794bbd6a%22%7d
 
