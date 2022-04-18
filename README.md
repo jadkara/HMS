@@ -1,3 +1,7 @@
+Sdc
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_ZDUyNjBlZTAtN2Q3OS00NTY4LWFiMDEtM2JkMGUzMzI0Mzgz%40thread.v2/0?context=%7b%22Tid%22%3a%222882be50-2012-4d88-ac86-544124e120c8%22%2c%22Oid%22%3a%22788ee1ae-30b2-478b-9717-0418b6811eb9%22%7d
+
+
 HCl
 https://teams.microsoft.com/l/meetup-join/19%3ameeting_YTkxOTdhMmYtNDllMS00N2MwLWIyZmQtNzExODY1ZDgwYzg3%40thread.v2/0?context=%7b%22Tid%22%3a%22189de737-c93a-4f5a-8b68-6f4ca9941912%22%2c%22Oid%22%3a%220778552a-34e4-4ca7-8e3e-17479bac711b%22%7d
 
