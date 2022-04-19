@@ -1,3 +1,7 @@
+Syn
+
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_ZjcwNmJiZTItNmQ3OC00MTM2LTgzN2UtNjM4Yjg1NjhmNjU3%40thread.v2/0?context=%7b%22Tid%22%3a%22e50ebc84-76f2-4636-b550-c3f7abc924af%22%2c%22Oid%22%3a%22481352b0-a41b-4e0f-b609-7ab966714afc%22%7d
+
 Sdc 2 Volkswagen
 https://teams.microsoft.com/l/meetup-join/19%3ameeting_ODNhODIyZjgtNjAwNi00ZTg0LWFjMWUtYWM5OWVlOGFkODcx%40thread.v2/0?context=%7b%22Tid%22%3a%222882be50-2012-4d88-ac86-544124e120c8%22%2c%22Oid%22%3a%22788ee1ae-30b2-478b-9717-0418b6811eb9%22%7d
 
