@@ -1,7 +1,8 @@
 Oracle
+https://oracle.zoom.us/j/8052661974?pwd=ejJZbmZMdHpHQTRJaE1sZ0c0YnlhZz09
 
 https://www.google.com/url?q=https%3A%2F%2Foracle.zoom.us%2Fj%2F8052661974%3Fpwd%3DejJZbmZMdHpHQTRJaE1sZ0c0YnlhZz09&sa=D&source=calendar&usd=2&usg=AOvVaw3B1kQssuuIw0n-0b99Khxe
-
+https://www.google.com/url?q=https%3A%2F%2Foracle.zoom.us%2Fj%2F8052661974%3Fpwd%3DejJZbmZMdHpHQTRJaE1sZ0c0YnlhZz09&sa=D&source=calendar&us
 Syn
 
 Hr
