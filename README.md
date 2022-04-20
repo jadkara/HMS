@@ -1,3 +1,8 @@
+Oracle
+
+https://oracle.zoom.us/j/8052661974?pwd=ejJZbmZMdHpHQTRJaE1sZ0c0YnlhZz09
+
+
 Syn
 
 https://teams.microsoft.com/l/meetup-join/19%3ameeting_ZjcwNmJiZTItNmQ3OC00MTM2LTgzN2UtNjM4Yjg1NjhmNjU3%40thread.v2/0?context=%7b%22Tid%22%3a%22e50ebc84-76f2-4636-b550-c3f7abc924af%22%2c%22Oid%22%3a%22481352b0-a41b-4e0f-b609-7ab966714afc%22%7d
