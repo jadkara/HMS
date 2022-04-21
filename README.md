@@ -1,3 +1,11 @@
+Virtues
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_OWQ0NmVkOGItNGIwYS00ZjA2LWFkMWUtY2Y3Y2E1ZjEyNjQ3%40thread.v2/0?context=%7b%22Tid%22%3a%220d85160c-5899-44ca-acc8-db1501b993b6%22%2c%22Oid%22%3a%2262e9adbc-dc52-461f-ae3e-66f70868efe1%22%7d
+
+Oracle
+https://oracle.zoom.us/j/8052661974?pwd=ejJZbmZMdHpHQTRJaE1sZ0c0YnlhZz09
+
+
+
 Kpmg
 https://teams.microsoft.com/l/meetup-join/19%3ameeting_MmUyNDRiNzEtODg0MC00NTBjLTkxMGEtODJkOTkzZDk4N2Nm%40thread.v2/0?context=%7b%22Tid%22%3a%22deff24bb-2089-4400-8c8e-f71e680378b2%22%2c%22Oid%22%3a%2239982e19-f322-43b2-8ec5-fd9d046ca96d%22%7d
 
