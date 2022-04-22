@@ -1,6 +1,5 @@
 EY
-https://teams.live.com/meet/9517776567669
-
+https://teams.microsoft.com/l/meetup-join/19%3Ameeting_MWMyMmY2MTItNTg4OC00M2IxLWE4MmYtMTI1ZWU2ZTRmNzAw%40thread.v2/0?context=%7B%22Tid%22%3A%22eca5d9cf-160d-4aec-bd77-f7934424d7de%22%2C%22Oid%22%3A%22b419a201-4165-451f-a517-defbff0dccf8%22%2C%22MessageId%22%3A%220%22%7D
 Treenity
 
 https://teams.microsoft.com/l/meetup-join/19%3ameeting_MWM5NWEzN2YtOTlmMS00Njc0LTkxNmQtMTdiZjVlMjNlMTkw%40thread.v2/0?context=%7b%22Tid%22%3a%22a28d7cb1-41aa-449b-8884-60571191a8f4%22%2c%22Oid%22%3a%2261a60895-489b-4a6e-9c95-94bed38ed636%22%7d
