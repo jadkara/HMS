@@ -1,3 +1,6 @@
+Nisum
+https://t.lever-analytics.com/email-link?dest=https%3A%2F%2Fteams.microsoft.com%2Fl%2Fmeetup-join%2F19%253ameeting_YmI4YWQyZWUtYzdhZi00Y2MxLTlkMzQtN2I2ZjRjN2MwNzYx%2540thread.v2%2F0%3Fcontext%3D%257b%2522Tid%2522%253a%252206408ebc-5eb8-4b0d-827f-76dd3b58bc84%2522%252c%2522Oid%2522%253a%25220019f99d-7157-401f-985b-e5bf9cac1269%2522%257d&eid=e7256ca4-129d-43c6-9e75-148de67128ae&idx=0&token=iWtRzyx5V69U7FAmSRQz8nmxOKk
+
 EY
 https://teams.microsoft.com/l/meetup-join/19%3Ameeting_MWMyMmY2MTItNTg4OC00M2IxLWE4MmYtMTI1ZWU2ZTRmNzAw%40thread.v2/0?context=%7B%22Tid%22%3A%22eca5d9cf-160d-4aec-bd77-f7934424d7de%22%2C%22Oid%22%3A%22b419a201-4165-451f-a517-defbff0dccf8%22%2C%22MessageId%22%3A%220%22%7D
 Treenity
