@@ -1,3 +1,6 @@
+Hein frick 
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_NWYyZTM4MDktYTUyNS00MmYzLThkZDktMTc0NzNhZjFhM2Rh%40thread.v2/0?context=%7b%22Tid%22%3a%2232328f8f-faa1-4964-b9db-54975ed54582%22%2c%22Oid%22%3a%22d419560c-4192-44bf-b6e4-95a9757abc78%22%7d
+
 Nisum
 https://t.lever-analytics.com/email-link?dest=https%3A%2F%2Fteams.microsoft.com%2Fl%2Fmeetup-join%2F19%253ameeting_YmI4YWQyZWUtYzdhZi00Y2MxLTlkMzQtN2I2ZjRjN2MwNzYx%2540thread.v2%2F0%3Fcontext%3D%257b%2522Tid%2522%253a%252206408ebc-5eb8-4b0d-827f-76dd3b58bc84%2522%252c%2522Oid%2522%253a%25220019f99d-7157-401f-985b-e5bf9cac1269%2522%257d&eid=e7256ca4-129d-43c6-9e75-148de67128ae&idx=0&token=iWtRzyx5V69U7FAmSRQz8nmxOKk
 
