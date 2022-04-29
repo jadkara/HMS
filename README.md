@@ -1,3 +1,6 @@
+Hein 
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_NWYyZTM4MDktYTUyNS00MmYzLThkZDktMTc0NzNhZjFhM2Rh%40thread.v2/0?context=%7b%22Tid%22%3a%2232328f8f-faa1-4964-b9db-54975ed54582%22%2c%22Oid%22%3a%22d419560c-4192-44bf-b6e4-95a9757abc78%22%7d
+
 Hein frick 
 https://teams.microsoft.com/l/meetup-join/19%3ameeting_NWYyZTM4MDktYTUyNS00MmYzLThkZDktMTc0NzNhZjFhM2Rh%40thread.v2/0?context=%7b%22Tid%22%3a%2232328f8f-faa1-4964-b9db-54975ed54582%22%2c%22Oid%22%3a%22d419560c-4192-44bf-b6e4-95a9757abc78%22%7d
 
